@@ -7,4 +7,4 @@ Memanfaatkan layanan **Snack Box Halal Buahbatu** adalah keputusan cerdas bagi A
 Teh Rita
 Hubungi Kontak dibawahini
 082214297187
-https://ext-6663370.livejournal.com/3364.html
+https://justpaste.it/avknd
